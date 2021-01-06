@@ -26,12 +26,6 @@ Coming from a background in music business it has always been a passion of mine 
 
 
 
-### Dash Sneak Peek
-
-
-![image](https://user-images.githubusercontent.com/29640036/103718506-7f9ddd00-4f8c-11eb-9cc6-9426caedb183.png)
-
-
 
 
 
